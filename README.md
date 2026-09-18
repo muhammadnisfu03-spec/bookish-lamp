@@ -1,2 +1,2 @@
 # bookish-lamp
-Muhammad Nisfu
+Muhammadbisfu@gmail.com Nisfu
